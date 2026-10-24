@@ -1,6 +1,6 @@
 <a id="yuzhou-vpn-review"></a>
 
-# 宇宙云(YuZhou)VPN官网注册地址｜真实测速｜价格与套餐详解
+# 宇宙云(YuZhou)VPN官网注册地址｜线路资料｜价格与套餐详解
 
 [完整详情与最新套餐](https://eoht.net/serve/airport/yuzhou) · [机场仓库汇总](https://github.com/vpnshow/airport-summary)
 
